@@ -1,0 +1,9 @@
+The Set-Up-To-Fail Syndrome
+
+From the examples given I don’t believe either the boss or the employee acted out of ill-will, at least not at first. After communication broke down and both started to make assumptions about the other, I could see both the boss and employee intentionally compromising the relationship between the two since the respect they had towards each other diminished. 
+
+I believe the boss is more at fault throughout this situation. Still the employee must take some of the fault as well. If the boss had taken the time to learn the reason behind the employee’s minor misstep and/or made it clear to the employee the reason for more supervision, the employee wouldn't have as great a reason to assume the boss doesn’t trust the employee. Therefore the employee wouldn't start to phone-it-in at work. At the same time the employee should feel comfortable to talk to their boss about feeling a lack of trust or confidence from the boss. But if the employee doesn't feel comfortable talking to the boss, the boss is at fault for not establishing a good open-door policy.
+
+The employee is also to blame to a certain extent. Once the employee feels a sense of distrust or doubt the employee should reach out to the boss and try to fix the situation. It could be as simple and explaining the situation or maybe coming into work a few extra hours to make up for the mistake. As long as the mistakes are few and far between the boss should be willing if not happy to discuss the situation with the employee. 
+
+In conclusion the boss is in charge of managing the employees. If there are issues the boss should make it clear to the employee of the situation and both should be open to ideas to rectify it. No one should feel as if their voice isn't heard. Communication is extremely important and eliminates the need to make assumptions.
