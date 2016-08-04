@@ -1,4 +1,5 @@
 My responses to Week 7's Questions
+
 1. The Set-Up-To-Fail Syndrome
 
 This article is very long. You can stop reading once you get to the "Getting It Right" section, if you want.
