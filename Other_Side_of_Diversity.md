@@ -1,0 +1,5 @@
+The Other Side of Diversity
+
+I found it interesting Baker had to move around so much due to the sense she didn't fit in, especially when she was transferred to New York. She obviously felt force to mold her personality to fit the groups she worked with. Once she realized she was getting advice on how to live her life from the same people she felt so isolated from, she decided to try things that interested her and to stop worry about how other perceived her. This is when she found a place where she felt she should be herself. 
+
+An employee should never have to felt like they need to change their personality or their beliefs to fit a mold of a company. Tolerance is a trait everyone must display to make sure they are welcoming to their coworkers/employees. People will disagree on certain issues. Everyone comes from different backgrounds. This is what makes our communities great. Diversity and acceptance of the differences makes a company great. When diversity is celebrated in a company, it can bring about more creative ideas and methods of solving problems. When you force employees to conform to a certain way of life you destroy that creativeness.
